@@ -4,5 +4,10 @@
 -sou aluno da escola Alfredo Marcondes Cabral
 -este perfil é dedicado aos meus projetos
 
-## você pode entrar em contato comigo pelo meu instagram:
+## você pode entrar em contato comigo pelo meu instagram: 
+
+
 @pe.ksen
+
+![](https://media1.tenor.com/m/xAYj92aUDLIAAAAd/guts.gif)
+
